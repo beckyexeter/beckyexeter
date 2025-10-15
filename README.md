@@ -1,3 +1,3 @@
 ## About Me
 
-MSc student at the University of Exeter 
+MSc student at the University of Exeter.
